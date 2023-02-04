@@ -1,4 +1,4 @@
-Sylvie (or OC/Skin names) | 19 | She/They/Pup
+Sylvie (OC/Skin names also ok) | 20 | She/They/Pup
 
 Hi I love rainbow horses! I mostly just wanted to link my Toyhou.se because I can't link TH bios to skins. 
 I love sitting at spawn and docks, and in the MLP OC area. I'm nervous to rp, 
